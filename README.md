@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Asa332
 - 👀 I’m interested in Blockchain technology
-- 🌱 I’m currently learning Business management
 - 📫 How to reach me : via telegram - @Asa332
 
 <!---
